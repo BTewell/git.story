@@ -2,4 +2,4 @@ Once upon a time there was a cat named Quimby. Quimby was an adorable little gre
 
 Quimby's first course of action was to initiate "Operation: Cute AF." She sat next to the computer desk, and looked as cute as she could possibly look. It worked, but only for a brief second.
 
-When it became clear that "Operation: Cute AF" wasn't working, Quimby decided to escalate things. "Operation: Tiny Dancer" would take her right into the problem area, prancing back and forth across the keyboard, and forcing her owner to give attention. It was marginally more successful.
+When it became clear that "Operation: Cute AF" wasn't working, Quimby decided to escalate things. "Operation: Tiny Dancer" would take her right into the problem area, prancing back and forth across the keyboard, and forcing her owner to give attention. It was marginally more successful
